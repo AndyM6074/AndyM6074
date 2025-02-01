@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning.
 - 💞️ I’m looking to collaborate on Youtube.
 - 📫 How to reach me: https://www.youtube.com/channel/UCsQOEPu0patYHMGqfvzVHWQ, https://discord.gg/QVVUg793Kt
-- 😄 Pronouns: Andy
+- 😄 Pronouns: Andy, Andy_is_sus
 - ⚡ Fun fact: I'm a Youtuber.
 
 <!---
